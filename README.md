@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @BreBad38
+- BreBad is standing for the Series Breaking Bad :shipit:
